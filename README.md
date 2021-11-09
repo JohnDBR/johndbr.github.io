@@ -1,2 +1,0 @@
-# johndbr.github.io
-CV
